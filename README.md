@@ -1,4 +1,4 @@
-👋 Hi, I’m @mazz262, but you can call me mazz or Marcel!
+👋 Hi, I’m @mazz262, but you can call me Marcel or mazz!
 <br>
 Currently I'm starting in the tech world, trying to achieve a carreer switch from international trade to web development.
 <br>
